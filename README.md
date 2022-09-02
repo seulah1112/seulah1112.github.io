@@ -1,1 +1,0 @@
-# seulah1112.github.io
